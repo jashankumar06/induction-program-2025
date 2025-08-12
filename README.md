@@ -292,4 +292,13 @@ Math lecture introduced GeoGebra and Desmos. Physics started lasers topic. Dr. L
    - Proceeded for ID card formation after lectures.
 
 **Summary of the day**
+Gautam discussed motorsports’ Civil Engineering aspects like ABS and aerodynamics. Prof. Varinder Singh linked economics with engineering, focusing on cost and resource management. ID card formation process was completed for students.
+
+
+#**OVERALL SUMMARY**
+
+(30 July – 08 August 2025)
+In the first week, students experienced a mix of spiritual, academic, and personal growth activities. It began with Shabad Kirtan and inspiring talks about respect, hard work, and self-improvement. Students explored the Civil Engineering department, learned about college facilities, and got introduced to clubs, societies, NCC, and NSS. Expert lectures covered topics like Universal Human Values, fitness, healthy eating with millets, motorsports, and economics. Academic sessions in mathematics, physics, and C++ programming helped build a technical base. Various activities promoted teamwork, discipline, leadership, and environmental care. The program gave students a balanced start to college life.
+
+
 
