@@ -42,6 +42,7 @@ Today it was a wonderful day, starting in the presence of Waheguru Ji with Shaba
 - Learned the purpose of each lab and how civil engineers contribute to society.
 
 **Summary of the day**
+
 Started with Shabad Kirtan and motivational talks on respect, Guru’s teachings, and hard work. Principal shared college history. Civil Engineering labs and machinery were introduced, showing their importance and contribution to society.
 
 Day 02 (01 August 2025)
