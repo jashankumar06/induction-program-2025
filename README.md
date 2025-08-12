@@ -119,7 +119,9 @@ UHV introduced by Dr. Priya Darshni, focusing on human needs and happiness. Dr. 
 - Asked questions related to college academics, extra-curricular activities, and laptop buying guidance.
 
 **Summary of the day**
-Cosmic Club presented history and events. Gautam explained motorsports engineering. UHV continued on right understanding and relationships. Physics lecture covered syllabus. Seniors’ P2P C++ session helped juniors with programming basics and academic queries.
+
+Causmic Club presented history and events. Gautam explained motorsports engineering. UHV continued on right understanding and relationships. Physics lecture covered syllabus. Seniors’ P2P C++ session helped juniors with programming basics and academic queries.
+
   ## Day 04 (05 August 2025)
   Today there was a slight change in the schedule and only one expert lecture was held.
 
@@ -160,6 +162,11 @@ Cosmic Club presented history and events. Gautam explained motorsports engineeri
     - Consume the same millet for 3 consecutive days.  
     - Process of making probiotics explained.  
     - Consume millet products within 1–2 hours of preparation.
+
+**Summary of the day**
+
+Mrs. Shaffy Makkar discussed millet nutrition, correct cooking methods, and disease prevention. Explained different types of millets, their health benefits, and preparation tips to improve digestion, immunity, and overall health naturally.
+
 
 ## Day 05 (06 August 2025)
 
@@ -223,6 +230,10 @@ Then there were two lectures scheduled.
 - Due to some issues, the first lecture was not held.  
 - In the second lecture, we had a P2P session where we continued learning the basics of C++, asked our doubts, and discussed the loop method.
 
+**Summary of the day**
+
+Dr. Parminder Singh outlined college facilities. Mr. Manpreet Singh spoke on fitness and drug prevention. NCC activities were explained by Tanmay Kaushal. Brigadier Cheema gave motivational advice. Ended with a P2P C++ loop session.
+
   ## Day 06 (07 August 2025)
 Today there was first two class lectures scheduled and then there was two lectures in the auditorium
 - Mathematics Lecture 
@@ -253,6 +264,10 @@ Today there was first two class lectures scheduled and then there was two lectur
    - Shared official Instagram handles for updates.  
    - Related Newton’s 3rd Law to nature: *“What we give to nature, we get back.”*
 
+**Summary of the day**
+
+Math lecture introduced GeoGebra and Desmos. Physics started lasers topic. Dr. Lakhvir Singh Khanna presented CML’s role. Dr. Jasvir Singh Grewal explained NSS, its activities, and environmental awareness efforts.
+
   ## Day 07 (08 August 2025)
 
 1. **Discussion Lecture – Gautam (Mechanical Engineering)**  
@@ -276,4 +291,5 @@ Today there was first two class lectures scheduled and then there was two lectur
 3. **Other Activities**  
    - Proceeded for ID card formation after lectures.
 
-  
+**Summary of the day**
+
