@@ -41,6 +41,27 @@ Today it was a wonderful day, starting in the presence of Waheguru Ji with Shaba
 - Observed machinery and equipment in various labs.  
 - Learned the purpose of each lab and how civil engineers contribute to society.
 
+**Summary of the day**
+Started with Shabad Kirtan and motivational talks on respect, Guru’s teachings, and hard work. Principal shared college history. Civil Engineering labs and machinery were introduced, showing their importance and contribution to society.
+
+Day 02 (01 August 2025)
+UHV introduced by Dr. Priya Darshni, focusing on human needs and happiness. Dr. Arvind Dhingra discussed personality development and societies. Mathematics and English proficiency tests assessed students’ basic skills before starting regular classes.
+
+Day 03 (04 August 2025)
+Cosmic Club presented history and events. Gautam explained motorsports engineering. UHV continued on right understanding and relationships. Physics lecture covered syllabus. Seniors’ P2P C++ session helped juniors with programming basics and academic queries.
+
+Day 04 (05 August 2025)
+Mrs. Shaffy Makkar discussed millet nutrition, correct cooking methods, and disease prevention. Explained different types of millets, their health benefits, and preparation tips to improve digestion, immunity, and overall health naturally.
+
+Day 05 (06 August 2025)
+Dr. Parminder Singh outlined college facilities. Mr. Manpreet Singh spoke on fitness and drug prevention. NCC activities were explained by Tanmay Kaushal. Brigadier Cheema gave motivational advice. Ended with a P2P C++ loop session.
+
+Day 06 (07 August 2025)
+Math lecture introduced GeoGebra and Desmos. Physics started lasers topic. Dr. Lakhvir Singh Khanna presented CML’s role. Dr. Jasvir Singh Grewal explained NSS, its activities, and environmental awareness efforts.
+
+Day 07 (08 August 2025)
+Gautam discussed motorsports’ Civil Engineering aspects like ABS and aerodynamics. Prof. Varinder Singh linked economics with engineering, focusing on cost and resource management. ID card formation process was completed for students.
+
 ## Day 02 (01 August 2025)
 
 **1. Dr. Priya Darshni (PhD in Electronics, Expert Faculty of UHV)**  
