@@ -11,6 +11,8 @@ Mobile:7814746043
 
 Email: handajashan95@gmail.com
 
+![Image](https://github.com/user-attachments/assets/f962f2d9-077c-4d95-a2ff-0a7875cc4312)
+
 ## Day 01 (30 July 2025)
 
 Today it was a wonderful day, starting in the presence of Waheguru Ji with Shabad Kirtan.
