@@ -338,6 +338,7 @@ Shiksha rattan and state award both by govt of Punjab
 
 5. **Interaction by Clubs**
 - Clubs (Mathemagian club , Tcs chemovate  , English club )
+
 -Tell their aims , objectives , benefits of enrolling under themselves , enhancement of personality , a way of how to communicate , give their qr codes and contact numbers to connect with them. 
 
 
