@@ -293,6 +293,7 @@ Math lecture introduced GeoGebra and Desmos. Physics started lasers topic. Dr. L
    - Proceeded for ID card formation after lectures.
 
 **Summary of the day**
+
 Gautam discussed motorsports’ Civil Engineering aspects like ABS and aerodynamics. Prof. Varinder Singh linked economics with engineering, focusing on cost and resource management. ID card formation process was completed for students.
 
 
