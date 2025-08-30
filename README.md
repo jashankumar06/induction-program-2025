@@ -330,6 +330,12 @@ Shiksha rattan and state award both by govt of Punjab
 - Experiments of Physics like checking charge by gold leaf electroscope , then electrictiy experiment to show current .
 - Counting of bones
 
+3. Google gemini introduction , its new features , how to use it , what are the AI applications releated in to the other fields.
+
+4. **Ms. Riya Arora (Maac Ludhiana)**
+- Told us about the industry of VFX, how VFX contributes in movies , and myth of releating that this field only leads to movies, many new projects and jobs are available in 3D ,gave a new carrer perspective,shared her story after 10th, had an actvity of singing song with students
+
+5.
 
 
 
