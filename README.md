@@ -298,25 +298,39 @@ Gautam discussed motorsports’ Civil Engineering aspects like ABS and aerodynam
 
 ## Day 08 (30 August 2025)
 
-1. **Dr Arshpreet Singh (Assistant professor,Food department ,PAU Ludhiana)**
-- expert lecture on food
+1. **Dr Arshpreet Singh (Assistant professor, Food department ,PAU Ludhiana)**
+- Expert lecture on food
 - Sir had many national level journals
 - Importance of 4 years degrees including basic values
-- focus on body nutrition and well being
-- clear misconceptions and give scientific validations like example of wheat chappati for diabetes
+- Focus on body nutrition and well being
+- Clear misconceptions and give scientific validations like example of wheat chappati for diabetes
 - Quoted that let food be medicine, not medicine be the food
 - Junk food should be snacks not your meal
 - Importance of balanced diet and milk which is a complete food in itself 
 - Things which require more hydration
 - Maida vs Atta
 - Mix roti has higher protein content 
-- sugar and jaggery compositions jaggery release energy in controlled manner
-- carbonated drinks their compositions ,its alternative i.e lemonade or soda or roohafza
+- Sugar and jaggery compositions jaggery release energy in controlled manner
+- Carbonated drinks their compositions ,its alternative i.e lemonade or soda or roohafza
 - Addressed students questions like
 
 - Tea vs coffee caffien composition its harm 
 - Vegan culture is it affordable?
 - Milk cheese vs soya cheese (tofu)
+
+2.** Dr.Jaswinder Singh**
+- Sir had many roles as Ex-assistant state project director (science) punjab , Ex-incharge circle inspector team punjab
+- National award for promoting science, 
+Shiksha rattan and state award both by govt of Punjab
+- The world is existing only on two things basically light and sound
+- Hear with focus leads to competence and it leads to knowledge and it leads to self confidence
+- Sir had told us tricks like adding 10 numbers,and 9 importance releating it with god.
+- Consistency told by example of bowl
+- Answering the Question by accurately thinking on it
+- Experiments of Physics like checking charge by gold leaf electroscope , then electrictiy experiment to show current .
+- Counting of bones
+
+
 
 
 
