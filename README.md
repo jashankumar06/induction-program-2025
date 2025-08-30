@@ -343,6 +343,8 @@ Shiksha rattan and state award both by govt of Punjab
 
 - Tell their aims , objectives , benefits of enrolling under themselves , enhancement of personality , a way of how to communicate , give their qr codes and contact numbers to connect with them. 
 
+**Summary of Day**
+Dr. Arshpreet Singh from PAU Ludhiana delivered an expert lecture on food, highlighting the importance of a balanced diet, body nutrition, and clearing misconceptions with scientific facts. Dr. Jaswinder Singh shared motivational insights on consistency, focus, and demonstrated simple physics experiments. A session on Google Gemini introduced students to its new features and AI applications. Ms. Riya Arora from MAAC Ludhiana gave career guidance in the VFX industry and engaged students through interactive activities. The day concluded with club interactions where different student clubs shared their objectives, benefits, and ways to connect.
 
 
 
