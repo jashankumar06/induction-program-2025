@@ -332,7 +332,7 @@ Shiksha rattan and state award both by govt of Punjab
 - Experiments of Physics like checking charge by gold leaf electroscope , then electrictiy experiment to show current .
 - Counting of bones
 
-3.**Google gemini** 
+3. **Google gemini** 
 - Introduction , its new features , how to use it , what are the AI applications releated in to the other fields.
 
 4. **Ms. Riya Arora (Maac Ludhiana)**
