@@ -5,9 +5,9 @@ Father’s Name: Sandeep Kumar
 
 Branch: Civil Engineering (CE)
 
-Registration Number:25103583
+Registration Number: 25103583
 
-Mobile:7814746043
+Mobile: 7814746043
 
 Email: handajashan95@gmail.com
 
