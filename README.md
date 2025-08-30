@@ -318,7 +318,7 @@ Gautam discussed motorsports’ Civil Engineering aspects like ABS and aerodynam
 - Vegan culture is it affordable?
 - Milk cheese vs soya cheese (tofu)
 
-2. ** Dr.Jaswinder Singh**
+2.**Dr.Jaswinder Singh**
 - Sir had many roles as Ex-assistant state project director (science) punjab , Ex-incharge circle inspector team punjab
 - National award for promoting science, 
 Shiksha rattan and state award both by govt of Punjab
